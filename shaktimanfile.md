@@ -1,2 +1,2 @@
 everyone knows that
-shaktiman is great
+shaktiman is good
